@@ -2,7 +2,7 @@
 title: "A New Era for Women in Sports - Analyzing Gender Equality and Olympic Performance at the 2024 Paris Games"
 date: 2024-08-14
 ---
-![GIF_-_#GenderEqualOlympics_version](https://github.com/user-attachments/assets/93f176bb-0473-44bd-80b1-c92cdf21806b)
+![GIF_-_#GenderEqualOlympics_version](https://github.com/user-attachments/assets/93f176bb-0473-44bd-80b1-c92cdf21806b) (Source: https://www.unwomen.org/en/paris-2024-olympics-new-era-for-women-in-sport#:~:text=For%20the%20first%20time%20in,first%20to%20reach%20gender%20equality)
 
 ## Introduction
 
